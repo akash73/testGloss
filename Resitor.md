@@ -1,0 +1,1 @@
+Any Resistor is futile
